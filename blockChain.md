@@ -11,6 +11,6 @@
 > 
 
 3
-https://mp.weixin.qq.com/s/WiEel6akaliiqkqE43GWQQ
-这也许是史上最中肯的投资建议
+
+### 这也许是史上最中肯的投资建议 https://mp.weixin.qq.com/s/WiEel6akaliiqkqE43GWQQ
 > 我觉得，这几乎笑来写给小白，诸如我这样的同学的信了。在2017年7月2日。谢谢，我读到了，非常幸运。
